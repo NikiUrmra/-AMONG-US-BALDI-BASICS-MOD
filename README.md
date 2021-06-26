@@ -28,4 +28,4 @@ The Mod Could Be Rudy  And Strict
 When the Hard question Comes And You Got It Wrong (RUN FOR LIFE)
 
 # NOTEBOOKS
-You Need Tpo Collet 2 notebooks To Use The doors
+You Need To Collet 2 notebooks To Use The doors
